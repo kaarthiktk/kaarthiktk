@@ -1,4 +1,4 @@
-# 💫 About Me:
+         Hi I'm Karthik TK
 I'm a Student
 
 
